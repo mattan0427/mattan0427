@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mattan0427
-- 👀 I’m interested in Gaming, UFC, Coding, Video Editing, etc.
+- 👀 I’m interested in Gaming, Basketball, UFC, Coding, Video Editing, etc.
 - 🌱 I’m currently learning data analytics/data science.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
